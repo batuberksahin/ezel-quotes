@@ -1,2 +1,2 @@
 # ezel-quotes
-List of quote of best series in the world, ezel
+List of quote of the best series in the world, ezel
